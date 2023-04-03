@@ -1,1 +1,2 @@
-# I_ready-glitch
+hey guys so it doesnt matter if this works or not if you want me to do the i ready lessons for you i can i just need somebody to let me watch netflix cuz my momma broke my tv so i have a 2015 tv and i only got local channels so plzzzz and you have to put the code in console i will give tutorial when im available
+you can contact me from my email: jjohns2759@students.marion.k12.sc.us. so yeaah i hope this helps so byee
